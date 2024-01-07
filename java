@@ -1,2 +1,6 @@
-hi this java code 
-for your practicing th ecode littile bit confuse
+9479684646
+  685644
+    55655
+    565
+    565556456
+    5656
